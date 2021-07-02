@@ -1,4 +1,4 @@
-build it
+build it ND RUN
 tataly funnn
 iidsaasdsadadsadadsa
 This dad;ad;s 
